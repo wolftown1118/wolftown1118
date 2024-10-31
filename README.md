@@ -2,6 +2,5 @@
 - 👀 I’m interested in learning from IT pros as much as possible
 - 🌱 I’m currently learning @freecodecamp
 - 💞️ I’m looking to collaborate on any projects for experience growth
-- 📫 How to reach me ...with an extended hand and a soft touch ;)
 - 😄 Pronouns: dude, broski
 - ⚡ Fun fact: the yoyo was originally a wespon used in the philippine jungle.
